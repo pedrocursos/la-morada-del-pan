@@ -1,0 +1,12 @@
+# Pan de espelta
+
+**Ingredientes**:
+* 1/2 kg. de Harina de blanca.
+* 1/2 kg. de Harina de espelta.
+* 50 gr. de levadura para pan.
+* Agua.
+* Sal.
+
+**Horno**:
+* Tamaño pequeño con capacidad de 30 litros.
+
