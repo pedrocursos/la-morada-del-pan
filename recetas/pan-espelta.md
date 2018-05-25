@@ -3,7 +3,7 @@
 **Ingredientes**:
 * 1/2 kg. de Harina de fuerza.
 * 1/2 kg. de Harina de espelta.
-* 50 gr. de levadura para pan.
+* 165 gr. de de masa madre.
 * Agua.
 * Sal.
 
